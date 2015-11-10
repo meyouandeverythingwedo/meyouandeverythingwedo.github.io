@@ -1,0 +1,23 @@
+---
+title: Thanksgiving weekend at the Red Bay cottage
+author: Cindy Choua
+excerpt: "Aunt Diane's cottage was on offer to us once again this year. We love going up at this time. The Fall leaves are showing us their magnificent colours, the air is crisp enough for the fireplace to do its work, the Red Bay sunsets invite us down to ..."
+layout: post
+permalink: /2010/10/thanksgiving-weekend-at-the-red-bay-cottage/
+categories:
+  - Uncategorized
+---
+<div style="font-family:arial, helvetica, sans-serif;font-size:12pt;color:#000000;">
+  <div>
+    Aunt Diane&#8217;s cottage was on offer to us once again this year. We love going up at this time. The Fall leaves are showing us their magnificent colours, the air is crisp enough for the fireplace to do its work, the Red Bay sunsets invite us down to the shore and the quiet is perfect for delving into books.
+  </div>
+</div>
+
+&nbsp;
+
+&nbsp; 
+
+<div class='p_embed p_image_embed'>
+  <a href="/wp-content/uploads/2010/10/img_4584-scaled1000.jpg"><img alt="Img_4584" height="375" src="/wp-content/uploads/2010/10/img_4584-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4583-scaled1000.jpg"><img alt="Img_4583" height="375" src="/wp-content/uploads/2010/10/img_4583-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4582-scaled1000.jpg"><img alt="Img_4582" height="667" src="/wp-content/uploads/2010/10/img_4582-scaled1000.jpg?w=225" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4533-scaled1000.jpg"><img alt="Img_4533" height="375" src="/wp-content/uploads/2010/10/img_4533-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4559-scaled1000.jpg"><img alt="Img_4559" height="375" src="/wp-content/uploads/2010/10/img_4559-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4529-scaled1000.jpg"><img alt="Img_4529" height="375" src="/wp-content/uploads/2010/10/img_4529-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4525-scaled1000.jpg"><img alt="Img_4525" height="667" src="/wp-content/uploads/2010/10/img_4525-scaled1000.jpg?w=225" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4522-scaled1000.jpg"><img alt="Img_4522" height="375" src="/wp-content/uploads/2010/10/img_4522-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4553-scaled1000.jpg"><img alt="Img_4553" height="667" src="/wp-content/uploads/2010/10/img_4553-scaled1000.jpg?w=225" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4536-scaled1000.jpg"><img alt="Img_4536" height="375" src="/wp-content/uploads/2010/10/img_4536-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4539-scaled1000.jpg"><img alt="Img_4539" height="667" src="/wp-content/uploads/2010/10/img_4539-scaled1000.jpg?w=225" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4547-scaled1000.jpg"><img alt="Img_4547" height="667" src="/wp-content/uploads/2010/10/img_4547-scaled1000.jpg?w=225" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4548-scaled1000.jpg"><img alt="Img_4548" height="684" src="/wp-content/uploads/2010/10/img_4548-scaled1000.jpg?w=219" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4580-scaled1000.jpg"><img alt="Img_4580" height="375" src="/wp-content/uploads/2010/10/img_4580-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4571-scaled1000.jpg"><img alt="Img_4571" height="375" src="/wp-content/uploads/2010/10/img_4571-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4563-scaled1000.jpg"><img alt="Img_4563" height="667" src="/wp-content/uploads/2010/10/img_4563-scaled1000.jpg?w=225" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4420-scaled1000.jpg"><img alt="Img_4420" height="375" src="/wp-content/uploads/2010/10/img_4420-scaled1000.jpg?w=300" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4421-scaled1000.jpg"><img alt="Img_4421" height="667" src="/wp-content/uploads/2010/10/img_4421-scaled1000.jpg?w=225" width="500" /></a><a href="/wp-content/uploads/2010/10/img_4405-scaled1000.jpg"><img alt="Img_4405" height="375" src="/wp-content/uploads/2010/10/img_4405-scaled1000.jpg?w=300" width="500" /></a><a href="http://getfile2.posterous.com/getfile/files.posterous.com/temp-2010-10-12/cDkvBJJvdHHdsqltygixyfyyjplkAtxpelvCxxvJgxAgcxcxeepDtGqFAuFz/IMG_4428.JPG.scaled1000.jpg"><img alt="Img_4428" height="375" src="http://getfile8.posterous.com/getfile/<br />
+files.posterous.com/temp-2010-10-12/cDkvBJJvdHHdsqltygixyfyyjplkAtxpelvCxxvJgxAgcxcxeepDtGqFAuFz/IMG_4428.JPG.scaled500.jpg" width="500" /></a>
+</div>
